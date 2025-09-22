@@ -11,8 +11,6 @@ We meet every 1<sup>st</sup> and 3<sup>rd</sup> Monday of the month (but NOT if 
 
 Meeting ends at around 9:15pm. 
 
-*Our next meeting date is automatically shown on the yellow banner of our homepage, under the heading _Next Meeting_.
-
 **Location**
 
 - The Oak and Pastor Pub, 86 Junction Road in Archway (approx. 7 mins walk from Archway station)
